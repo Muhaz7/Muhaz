@@ -1,0 +1,2 @@
+# Muhaz
+For best mining 
